@@ -1,0 +1,2 @@
+# mijitouzi
+Mijitouzi Trading Records
